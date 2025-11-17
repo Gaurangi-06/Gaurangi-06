@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://gaurangi-06.github.io/Gaurangi/](https://gaurangi-06.github.io/Gaurangi/)
 
-- 📫 How to reach me **gaurangi@bu.edu**
+- 📫 How to reach me **gaurangiagrawal27@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
